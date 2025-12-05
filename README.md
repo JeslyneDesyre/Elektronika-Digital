@@ -1,2 +1,2 @@
 # Elektronika-Digital
-ELEKTRONIKA DIGITAL
+Jeslyne Olita Alma Desyre (2042241018)
